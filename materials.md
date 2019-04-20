@@ -2,7 +2,7 @@
 
 - [ ] Native seeds
 - [ ] Paper seed envelopes 
-- [ ] A large tri-fold presentation board
+- [ ] Presentation board or poster
 - [ ] Glue stick
 - [ ] Printer access 
 - [ ] Markers 
