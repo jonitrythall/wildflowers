@@ -11,4 +11,6 @@
 * [10 Plants for a Bird-Friendly Yard](https://www.audubon.org/news/10-plants-bird-friendly-yard), National Audubon Society
 
 ## Helping Butterflies
+* [7 Ways to Attract More Butterflies to Your Garden](https://www.onegreenplanet.org/lifestyle/attract-more-butterflies-to-your-garden-and-save-them-from-extinction/), One Green Planet
+* [Attracting Butterflies](https://www.nwf.org/Garden-for-Wildlife/Wildlife/Attracting-Butterflies), National Wildlife Federation 
 
