@@ -2,13 +2,19 @@
 
 ## Benefits of Native Wildflowers
 
-### Water Conservation 
+### Climate 
 
-### Air Pollution Reduction 
+#### Water Conservation 
 
-### Pollinators
+#### Air Pollution Reduction 
 
-### Birds
+### Bugs & Wildlife
+
+#### Pollinators
+
+#### Birds
+
+### Beautiful 
 
 ## Common Types In The Area (Delaware)
 
