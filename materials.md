@@ -7,3 +7,4 @@
 - [ ] Printer access 
 - [ ] Markers 
 - [ ] Paper letters or stencils 
+- [ ] Address label sheets 
