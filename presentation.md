@@ -33,3 +33,4 @@
 ### Reduce Chemical Usage 
 
 ### Plant Milkweed
+Milkweed is a famously known host for monarch butterfly catepillars and they attract loads of other insects and birds. Some birds, like the American Goldfinch, use the fiber from this plant to create nests for their chicks. 
