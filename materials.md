@@ -11,3 +11,7 @@
 - [ ] Brochures from local gardens to distribute 
 - [ ] Pollinator house to display
 - [ ] Colored construction paper or card stock 
+
+## Paper Flowers
+- [ ] Glue stick 
+- [ ] Colored card stock 
