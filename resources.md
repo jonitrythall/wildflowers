@@ -3,6 +3,9 @@
 ## Benefits of Native Wildflowers
 * [Why Native Plants Matter](https://www.audubon.org/content/why-native-plants-matter), National Audubon Society
 * [Why Garden with Native Wildflowers?](https://www.fs.fed.us/wildflowers/Native_Plant_Materials/Native_Gardening/index.shtml), USDA Forest Service
+* [What’s so great about native plants?](https://emswcd.org/native-plants/native-plant-benefits/), East Multnomah Soil & Water
+Conservation District
+* [Why Use Native Plants](http://grownative.org/why-use-native-plants/), Grow Native Missouri Prairie Foundation  
 
 ## Growing Wildflowers
 * [Container Grown Wildflowers: Tips On Caring For Potted Wildflower Plants](https://www.gardeningknowhow.com/ornamental/flowers/fgen/container-grown-wildflowers.htm), Gardening Know How 
