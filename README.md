@@ -1,4 +1,4 @@
-# The Importance of Native Wildflowers 🌷🌺🌻
+# The Importance of Native Wildflowers 🌷🌻
 
 This is an overview of a 1st grade science fair topic.
 
