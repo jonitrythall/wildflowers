@@ -2,7 +2,7 @@
 
 - [ ] Native seeds
 - [ ] Paper seed envelopes 
-- [ ] Presentation board or poster
+- [ ] Presentation board (cardboard, foam core free)
 - [ ] Glue stick
 - [ ] Printer access 
 - [ ] Markers 
