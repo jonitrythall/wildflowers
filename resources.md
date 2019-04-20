@@ -1,6 +1,7 @@
 # Handy Resources
 
 ## Growing Wildflowers
+* [Container Grown Wildflowers: Tips On Caring For Potted Wildflower Plants](https://www.gardeningknowhow.com/ornamental/flowers/fgen/container-grown-wildflowers.htm), Gardening Know How 
 
 ## Helping Bees
 * [How to Save Bees](https://thehoneybeeconservancy.org/how-to-save-the-bees/), Honeybee Conservancy
@@ -8,4 +9,6 @@
 
 ## Helping Birds
 * [10 Plants for a Bird-Friendly Yard](https://www.audubon.org/news/10-plants-bird-friendly-yard), National Audubon Society
+
+## Helping Butterflies
 
