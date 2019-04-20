@@ -10,3 +10,4 @@
 - [ ] Address label sheets 
 - [ ] Brochures from local gardens to distribute 
 - [ ] Pollinator house to display
+- [ ] Colored construction paper or card stock 
