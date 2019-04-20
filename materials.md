@@ -14,5 +14,5 @@
 - [ ] Scissors 
 
 ## Paper Flowers
-- [ ] Glue stick 
+- [ ] Glue gun
 - [ ] Colored card stock 
