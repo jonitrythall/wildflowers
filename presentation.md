@@ -13,8 +13,8 @@
 ## Seeds
 
 ### Where To Get Seeds
-  * [Urban Farmer Delaware blend](https://www.ufseeds.com/product/delaware-wildflower-seeds/)
-  * [American Meadows northeat blend](https://www.americanmeadows.com/northeast-pollinator-wildflower-seed-mix)
+  * [Urban Farmer Delaware blend](https://www.ufseeds.com/product/delaware-wildflower-seeds/) 📍
+  * [American Meadows northeat blend](https://www.americanmeadows.com/northeast-pollinator-wildflower-seed-mix) 📍
 
 ### Growing Seeds
 
