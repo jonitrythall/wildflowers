@@ -4,7 +4,7 @@
 
 ### Water Conservation 
 
-### Bugs
+### Pollinators
 
 ## Common Types In The Area (Delaware)
 
