@@ -1,5 +1,9 @@
 # Handy Resources
 
+## Benefits of Native Wildflowers
+* [Why Native Plants Matter](https://www.audubon.org/content/why-native-plants-matter), National Audubon Society
+* [Why Garden with Native Wildflowers?](https://www.fs.fed.us/wildflowers/Native_Plant_Materials/Native_Gardening/index.shtml), USDA Forest Service
+
 ## Growing Wildflowers
 * [Container Grown Wildflowers: Tips On Caring For Potted Wildflower Plants](https://www.gardeningknowhow.com/ornamental/flowers/fgen/container-grown-wildflowers.htm), Gardening Know How 
 
