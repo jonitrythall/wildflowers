@@ -19,6 +19,16 @@
 ### Beautiful 
 
 ## Common Types In The Area (Delaware)
+1. Swamp Milkweed 
+2. Butterfly Milkweed
+3. Yellow Thistle 
+4. Blue Cohosh 
+5. Bloodroot 
+6. Swamp Sunflower
+7. New England Aster
+8. Horsemint
+9. White Turtlehead 
+10. Grassleaf Goldenrod
 
 ## Seeds
 
