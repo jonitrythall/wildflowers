@@ -38,7 +38,8 @@
 
 ### Growing Seeds
 
-#### Time of Year
+#### Time of Year 📍
+Best planted in the spring or fall. When the temperature is below 70°F in the fall the seeds wil remain dormant until spring showers. 
 
 #### Location 
 
