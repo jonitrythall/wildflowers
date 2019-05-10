@@ -46,10 +46,12 @@ Best planted in the spring or fall. When the temperature is below 70°F in the f
 #### Area & Soil Prep 
 
 #### Watering 
+Water 2-3 times a week to germinate, then once a month in the growing season if there is not regular rain in the area. 
 
 ## Other Ways Of Helping From Your Yard
 
 ### Pollinator Houses 
+Pollinator houses are structures that serve as coazy homes for solitary-nesting native bees. 
 
 ### Reduce Chemical Usage 
 
