@@ -2,7 +2,7 @@
 
 ## All About Native Wildflowers
 
-### Benefits List 
+### Quick Benefits List 
 1. Require little maintanance; less water and fertilizer
 2. A more affordable landscaping option 
 3. Four times more attractive to pollinators 
@@ -14,23 +14,25 @@
 9. Absorbs excessive stormwater 
 10. Provide nartual beauty to our landscape 
 
-### Climate 
+### Main Sections & Talking Points 
 
-#### Water Conservation 
+#### Climate 
 
-#### Air Pollution Reduction 
+##### Water Conservation 
 
-#### Less Fertilizer Required 
+##### Air Pollution Reduction 
 
-### Bugs & Wildlife
+##### Less Fertilizer Required 
 
-#### Pollinators
+#### Bugs & Wildlife
 
-#### Birds
+##### Pollinators
+
+##### Birds
 
 ### Beautiful 
 
-## Common Types In The Area (Delaware)
+### Common Types In The Area (Delaware) 📍
 1. Swamp Milkweed 
 2. Butterfly Milkweed
 3. Yellow Thistle 
@@ -42,35 +44,35 @@
 9. White Turtlehead 
 10. Grassleaf Goldenrod
 
-## Seeds
+### Seeds
 
-### Where To Get Seeds 📍
+#### Where To Get Seeds 📍
   * [Urban Farmer Delaware blend](https://www.ufseeds.com/product/delaware-wildflower-seeds/) 
   * [American Meadows northeat blend](https://www.americanmeadows.com/northeast-pollinator-wildflower-seed-mix)
 
-### Growing Seeds
+#### Growing Seeds
 
-#### Time of Year 📍
+##### Time of Year 📍
 Best planted in the spring or fall. When the temperature is below 70°F in the fall the seeds wil remain dormant until spring showers. 
 
-#### Location 
+##### Location 
 
-#### Area & Soil Prep 
+##### Area & Soil Prep 
 
-#### Watering 
+##### Watering 
 Water 2-3 times a week to germinate, then once a month in the growing season if there is not regular rain in the area. 
 
-## Other Ways Of Helping From Your Yard
+### Other Ways Of Helping From Your Yard
 
-### Pollinator Houses 
+#### Pollinator Houses 
 Pollinator houses are structures that serve as coazy homes for solitary-nesting native bees. 
 
-### Reduce Chemical Usage 
+#### Reduce Chemical Usage 
 
-### Plant Milkweed
+#### Plant Milkweed
 Milkweed is a famously known host for monarch butterfly catepillars and they attract loads of other insects and birds. Some birds, like the American Goldfinch, use the fiber from this plant to create nests for their chicks. 
 
-## Local Gardens 📍
+### Local Gardens 📍
 * [Longwood Gardens](https://longwoodgardens.org/)
 * [Mt Cuba Center](https://mtcubacenter.org/)
 * [Winterthur](https://www.winterthur.org/)
