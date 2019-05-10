@@ -2,6 +2,16 @@
 
 ## All About Native Wildflowers
 
+### Benefits 
+1. Require little maintanance and water
+2. A more affordable landscaping option compared to non-native options
+3. Four times more attractive to pollinators like bees and butterflies over non-native flowers
+4. Provides food and shelter for birds
+5. Improve soil health and prevent erosion 
+6. Can help boost crop yields 
+7. Provide protein for wildlife 
+8. 
+
 ### Climate 
 
 #### Water Conservation 
