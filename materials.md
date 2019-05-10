@@ -9,10 +9,8 @@
 - [ ] Paper letters or stencils 
 - [ ] Address label sheets 
 - [ ] Brochures from local gardens to distribute 
-- [ ] Pollinator house to display
 - [ ] Colored construction paper or card stock 
 - [ ] Scissors 
 
-## Paper Flowers
-- [ ] Glue gun
-- [ ] Colored card stock 
+## Nice To Haves
+- [ ] Pollinator house to display
