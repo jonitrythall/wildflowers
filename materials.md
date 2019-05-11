@@ -7,7 +7,7 @@
 - [ ] Printer access 
 - [ ] Paper letters or stencils 
 - [ ] Address label sheets 
-- [ ] Colored construction paper or card stock 
+- [ ] Colored construction paper  
 - [ ] Scissors 
 
 ## Nice To Haves
