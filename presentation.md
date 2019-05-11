@@ -63,7 +63,7 @@ Water 2-3 times a week to germinate, then once a month in the growing season if 
 ## Other Ways Of Helping From Your Yard
 
 ### Pollinator Houses 
-Pollinator houses are structures that serve as coazy homes for solitary-nesting native bees. 
+Different types of pollinators require different types of homes and pollinator houses are structures that serve as coazy homes for solitary-nesting native bees. Solitary nesting bees do not live within the protection of colonies and do not produce honey. These bees spend a majority of their time collecting pollen and are more effective pollinateing plants than honeybees. Solitary bees need hollow tubes to to live in for protection and to lay their young, so pollinator houses are a great way to ensure that these little helpers can survive and thrive. 
 
 ### Reduce Chemical Usage 
 
