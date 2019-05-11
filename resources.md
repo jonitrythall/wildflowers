@@ -6,7 +6,11 @@
 * [Ecological benefits of gardening wildflowers](https://phys.org/news/2014-05-ecological-benefits-gardening-wildflowers.html), Phys.org
 * [What’s so great about native plants?](https://emswcd.org/native-plants/native-plant-benefits/), East Multnomah Soil & Water
 Conservation District
-* [Why Use Native Plants](http://grownative.org/why-use-native-plants/), Grow Native Missouri Prairie Foundation  
+* [Why Use Native Plants](http://grownative.org/why-use-native-plants/), Grow Native Missouri Prairie Foundation
+
+## Chemical-Free Lawns
+* [How to Maintain a Chemical-Free Lawn](https://www.nwf.org/en/Magazines/National-Wildlife/1991/How-to-Maintain-a-Chemical-Free-Lawn), The National Wildlife Federation 
+* [Organic Lawn Care: How to Grow a Beautiful Lawn Naturally](https://wellnessmama.com/123908/beautiful-lawn/), Wellness Mama
 
 ## Growing Wildflowers
 * [Custom native Plant list by region](http://www.plantnative.org), Plant Native 
