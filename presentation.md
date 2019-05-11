@@ -91,6 +91,11 @@ Wildflowers typically germinate within 7-14 days and require sunlight to do so.
 Different types of pollinators require different types of homes and pollinator houses are structures that serve as coazy homes for solitary-nesting native bees. Solitary nesting bees do not live within the protection of colonies and do not produce honey. These bees spend a majority of their time collecting pollen and are more effective pollinateing plants than honeybees. Solitary bees need hollow tubes to to live in for protection and to lay their young, so pollinator houses are a great way to ensure that these little helpers can survive and thrive. 
 
 ### Reduce Chemical Usage 
+Chemical-free, organic gardening and landscaping practices are always the best option for people, pets, wildlife, and the environment. Pesticides and herbicide destoy earth worm populations and good weeds that feed pollinators and keep pests at bay, yet the average lawn in American uses several times more chemicals than farmlands. 
+
+The key to chemical-free lawn care starts with the health of the soil and a shift in what we consider to be the "ideal" lawn. When grass is able to thrive unwanted weeds have a much harder time setting in. Airating in the spring and fertilizing with compost once a year can help tremendously. Also, make sure the grass seed you purchase is native to the area. 
+
+If an "ideal"lawn is viewed as land where plants, wildlife, and insects can thrive and positively controbute to the environment, than chemicals are not the way to achieve this. Dandelions can be pretty too!
 
 ### Plant Milkweed
 Milkweed is a famously known host for monarch butterfly catepillars and they attract loads of other insects and birds. Some birds, like the American Goldfinch, use the fiber from this plant to create nests for their chicks. 
