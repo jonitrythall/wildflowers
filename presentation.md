@@ -22,11 +22,13 @@
 
 #### Less Fertilizer Required 
 
-### Bugs & Wildlife
+### Key Pollinators
 
-#### Pollinators
+#### Bees, Butterflies 
 
 #### Birds
+
+## Saving Bugs
 
 ## Beauty
 
