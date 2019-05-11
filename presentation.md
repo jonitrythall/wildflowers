@@ -14,13 +14,14 @@
 
 ## Main Sections & Talking Points 
 
-### Climate 
+### Water Conservation 
 
-#### Water Conservation 
+### Less Fertilizer Required 
 
-#### Air Pollution Reduction 
+### Air Pollution Reduction 
+Wildflowers and other native plants....
 
-#### Less Fertilizer Required 
+### Pollination 
 
 ### Key Pollinators
 
