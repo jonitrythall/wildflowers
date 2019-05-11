@@ -32,6 +32,9 @@ Perhaps somewhat surprisingly, birds are very important pollinators for wildflow
 
 There are 2,000 bird species globally that feed on nectar, insects, and the spiders associated with nectar bearing flowers.
 
+#### Beetles
+Though often overlooked, Beetles make up the largest group of pollinators because there are so many of them. They are able to see color but choose their favorite flowers based on smell. Beetles such as ladybugs supply the additional benefit of killing pests that would likely destroy the wildflowers. A single ladybug can eat as many as 5,000 aphids in its lifetime.
+
 #### Moths & Bats!
 Pollination is not just a day shift job. Moths and bats take over at night.
 
