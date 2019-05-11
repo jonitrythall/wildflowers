@@ -5,7 +5,7 @@
 2. A more affordable landscaping option 
 3. Four times more attractive to pollinators 
 4. Provides food and shelter for animals
-5. Improve soil health and prevent erosion 
+5. Improves soil health and prevents erosion 
 6. Can help boost crop yields 
 7. Supply wildlife with protein 
 8. Medicinal benefits such as with Echinacea
