@@ -27,10 +27,12 @@
 #### Bees, Butterflies 
 
 #### Birds
+Perhaps somewhat surprisingly, birds are very important pollinators for wildflowers. In the United States Hummingbirds specifically are amoung the most helpful here and are especially attracted to red. There are 2,000 bird species globally that feed on nectar, insects, and the spiders associated with nectar bearing flowers.
 
 ## Saving Bugs
 
 ## Beauty
+Wildflowers are vibrantly colored by design in order to attact as many pollinators as possible. They have the ability to cover and thrive in our native environment, creating peace and beauty while encouraging gardening and fostering pollinator education. 
 
 ## Common Types In The Area (Delaware) 📍
 1. Swamp Milkweed 
