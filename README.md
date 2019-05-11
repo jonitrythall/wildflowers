@@ -1,6 +1,6 @@
 # All About Native Wildflowers 🌷🌻
 
-This is a breakdown of a 1st grade school presentation topic to be customized and reused. 
+This is a breakdown of an elementary school presentation topic to be customized and reused. 
 
 It's ideal as a research-based kid/parent science project or an in-class presentation where kids and parents can contribute equally. Having time for these projects can be tricky in our day-to-day lives and in sharing these materials I hope you are able to find stress-free success while learning and teaching a ton in the process. 
 
