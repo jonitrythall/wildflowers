@@ -25,9 +25,17 @@
 ### Key Pollinators
 
 #### Bees, Butterflies 
+Bees and butterflies are the most well known pollinators. They have specialized structures on their bodies that collect pollen and allow them to continusouly carry and transfer this pollen to other plants. 
 
 #### Birds
-Perhaps somewhat surprisingly, birds are very important pollinators for wildflowers. In the United States Hummingbirds specifically are amoung the most helpful here and are especially attracted to red. There are 2,000 bird species globally that feed on nectar, insects, and the spiders associated with nectar bearing flowers.
+Perhaps somewhat surprisingly, birds are very important pollinators for wildflowers. In the United States Hummingbirds specifically are amoung the most helpful here and are especially attracted to red. When a hummingbird inserts its beak into a flower to drink the nectar, sticky pollen grains stick to it. The bird then visits another flower and transfers this pollen in the process and if both flowers are the same species pollination occurs.  
+
+There are 2,000 bird species globally that feed on nectar, insects, and the spiders associated with nectar bearing flowers.
+
+#### Moths & Bats!
+Pollination is not just a day shift job. Moths and bats take over at night.
+
+While most flower-visiting bats live in more tropical climates, it is still very cool to learn that they can be such important and unexpected pollinators.
 
 ## Saving Bugs
 Insect populations are decreasing drastically around the world. This is an issue for many reasons other than pollinatoion. Entire ecosystems that rely on bugs as a source of food can die off forever. Insects serve as the base of the food web, eaten by everything from birds to mammals to fish. Without this food source these animals will also die. 
