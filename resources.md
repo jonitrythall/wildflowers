@@ -24,5 +24,8 @@ Conservation District
 * [7 Ways to Attract More Butterflies to Your Garden](https://www.onegreenplanet.org/lifestyle/attract-more-butterflies-to-your-garden-and-save-them-from-extinction/), One Green Planet
 * [Attracting Butterflies](https://www.nwf.org/Garden-for-Wildlife/Wildlife/Attracting-Butterflies), National Wildlife Federation 
 
+## Insect Decline
+* [Why insect populations are plummeting—and why it matters](https://www.nationalgeographic.com/animals/2019/02/why-insect-populations-are-plummeting-and-why-it-matters/), National Geographic
+
 ## Native Plants By Region 
 * [Container Grown Wildflowers: Tips On Caring For Potted Wildflower Plants](https://www.gardeningknowhow.com/ornamental/flowers/fgen/container-grown-wildflowers.htm), Gardening Know How
