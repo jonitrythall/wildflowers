@@ -72,9 +72,7 @@ Wildflowers are vibrantly colored by design in order to attact as many pollinato
 #### Time of Year 📍
 Best planted in the spring or fall. When the temperature is below 70°F in the fall the seeds wil remain dormant until spring showers. 
 
-#### Location 
-
-#### Area & Soil Prep 
+#### Location & Soil Prep 
 Luckily native wildflowers are naturally the easiest flowers to grow! Nearly any well-drained site with moderate quality soil works well, but there are a few key things to help prepare and ensure success: 
 1. Select a site where rain water will not pool and will receive roughly 6 hours of sunlight each day. 
 2. Pull all weeds from the area about 2 weeks before planting. 
