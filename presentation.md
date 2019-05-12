@@ -76,7 +76,7 @@ Best planted in the spring or fall. When the temperature is below 70°F in the f
 Luckily native wildflowers are naturally the easiest flowers to grow! Nearly any well-drained site with moderate quality soil works well, but there are a few key things to help prepare and ensure success: 
 1. Select a site where rain water will not pool and will receive roughly 6 hours of sunlight each day. 
 2. Pull all weeds from the area about 2 weeks before planting. 
-3. Break up the top 2 inches of soil with a hoe and water the area well. This is allow the remaining weed seeds to germinate and can then be removed over the next couple weeks before the wildflower seeds are planted. Once the wildflowers are fully grown they will control weeds on their own. 
+3. Break up the top 2 inches of soil with a hoe and water the area well. This will allow the remaining weed seeds to germinate and can then be removed over the next couple weeks before the wildflower seeds are planted. Once the wildflowers are fully grown they will control weeds on their own. 
 4. Sprinkle the seeds on the soil surface, following the recommended distance as outlined on the seed packet of the specific flower species (overcrowding can kill them!). 
 5. Lay a flat board on top of the new seed bed and press down to enforce contact with soil, then remove the board. 
 6. Gently mist the seed bed with water once a day.
