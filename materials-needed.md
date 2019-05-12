@@ -4,7 +4,7 @@
 - [ ] Paper seed envelopes 
 - [ ] Tri-fold presentation board 
 - [ ] Glue stick
-- [ ] Printer access 
+- [ ] Colored printer access 
 - [ ] Paper letters or stencils 
 - [ ] Address label sheets (Avery 8160)
 - [ ] Colored construction paper  
