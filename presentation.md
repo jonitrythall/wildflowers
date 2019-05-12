@@ -12,7 +12,7 @@
 9. Absorbs excessive stormwater 
 10. Provide natural beauty to our landscape 
 
-[Printable List](https://github.com/jonitrythall/wildflowers/blob/master/print-materials/flower-benefits.pdf)
+🖨 [Printable List](https://github.com/jonitrythall/wildflowers/blob/master/print-materials/flower-benefits.pdf)
 
 ## Main Sections & Talking Points 
 
@@ -84,7 +84,7 @@ Luckily native wildflowers are naturally the easiest flowers to grow! Nearly any
 
 Wildflowers typically germinate within 7-14 days and require sunlight to do so. 
 
-[Printable list](https://github.com/jonitrythall/wildflowers/blob/master/print-materials/planting-seeds.pdf)
+🖨 [Printable list](https://github.com/jonitrythall/wildflowers/blob/master/print-materials/planting-seeds.pdf)
 
 ## Other Ways Of Helping From Your Yard
 
