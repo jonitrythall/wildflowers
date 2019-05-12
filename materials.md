@@ -6,7 +6,7 @@
 - [ ] Glue stick
 - [ ] Printer access 
 - [ ] Paper letters or stencils 
-- [ ] Address label sheets 
+- [ ] Address label sheets (Avery 8160)
 - [ ] Colored construction paper  
 - [ ] Scissors 
 
