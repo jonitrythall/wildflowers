@@ -12,14 +12,15 @@
 9. Absorbs excessive stormwater 
 10. Provide natural beauty to our landscape 
 
+[Printable List](https://github.com/jonitrythall/wildflowers/blob/master/print-materials/flower-benefits.pdf)
+
 ## Main Sections & Talking Points 
 
-### Water Conservation 
-
-### Less Fertilizer Required 
+### Low Maintainence  
+Since wildflowers are perfectly adapted to thrive in their native environment that are used to the soil, rain schedule, and can better fight native invasive plants. Less fertilizer and water are needed to ensure growth compared to non-native flowers.  
 
 ### Air Pollution Reduction 
-Wildflowers and other native plants....
+Air pollution is on the rise and flowers and other plants 
 
 ### Pollination 
 
@@ -82,6 +83,8 @@ Luckily native wildflowers are naturally the easiest flowers to grow! Nearly any
 6. Gently mist the seedbed with water once a day.
 
 Wildflowers typically germinate within 7-14 days and require sunlight to do so. 
+
+[Printable list](https://github.com/jonitrythall/wildflowers/blob/master/print-materials/planting-seeds.pdf)
 
 ## Other Ways Of Helping From Your Yard
 
