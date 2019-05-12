@@ -7,7 +7,7 @@
 4. Provides food and shelter for animals
 5. Improves soil health and prevents erosion 
 6. Can help boost crop yields 
-7. Supply wildlife with protein 
+7. They act as natural air purifiers  
 8. Medicinal benefits such as with Echinacea
 9. Absorbs excessive stormwater 
 10. Provide nartual beauty to our landscape 
