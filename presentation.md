@@ -16,13 +16,16 @@
 
 ## Main Sections & Talking Points 
 
-### Low Maintainence  
+### Low Maintenance  
 Since wildflowers are perfectly adapted to thrive in their native environment that are used to the soil, rain schedule, and can better fight native invasive plants. Less fertilizer and water are needed to ensure growth compared to non-native flowers.  
 
 ### Air Pollution Reduction 
-Air pollution is on the rise and flowers and other plants 
+Air pollution is on the rise and is very unhealthy for humans, animals, and our environment. Flowers and other native plants help improve the quality of the air by removing carbon dioxide and producing oxygen. 
+
+Wildflowers simply do not require the maintenance that grass lawns do. Reducing lawn mower use and allowing native plants to thrive also greatly reduces air pollution since mowers produces 5% of all air pollution in the United States, using about 800 million gallons of gas per year. This equipment is not as regulated as vehicles are and emit much more waste as a result. 
 
 ### Pollination 
+Pollination is when grains of pollen are transferred from one plant to another of the same species, producing seeds so that more of that plant can grow. Pollinators, such as bugs and animals, are needed to move pollen.  
 
 ### Key Pollinators
 
