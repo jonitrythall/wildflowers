@@ -78,8 +78,8 @@ Luckily native wildflowers are naturally the easiest flowers to grow! Nearly any
 2. Pull all weeds from the area about 2 weeks before planting. 
 3. Break up the top 2 inches of soil with a hoe and water the area well. This will allow the remaining weed seeds to germinate and can then be removed over the next couple weeks before the wildflower seeds are planted. Once the wildflowers are fully grown they will control weeds on their own. 
 4. Sprinkle the seeds on the soil surface, following the recommended distance as outlined on the seed packet of the specific flower species (overcrowding can kill them!). 
-5. Lay a flat board on top of the new seed bed and press down to enforce contact with soil, then remove the board. 
-6. Gently mist the seed bed with water once a day.
+5. Lay a flat board on top of the new seedbed and press down to enforce contact with soil, then remove the board. 
+6. Gently mist the seedbed with water once a day.
 
 Wildflowers typically germinate within 7-14 days and require sunlight to do so. 
 
