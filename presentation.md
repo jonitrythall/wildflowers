@@ -1,7 +1,7 @@
 # Topics for Presentation and Board
 
 ## Quick Benefits List 
-1. Require little maintanance; less water and fertilizer
+1. Require much less water and fertilizer
 2. A more affordable landscaping option 
 3. Four times more attractive to pollinators 
 4. Provides food and shelter for animals
@@ -10,7 +10,7 @@
 7. They act as natural air purifiers  
 8. Medicinal benefits such as with Echinacea
 9. Absorbs excessive stormwater 
-10. Provide nartual beauty to our landscape 
+10. Provide natural beauty to our landscape 
 
 ## Main Sections & Talking Points 
 
@@ -26,15 +26,15 @@ Wildflowers and other native plants....
 ### Key Pollinators
 
 #### Bees, Butterflies 
-Bees and butterflies are the most well known pollinators. They have specialized structures on their bodies that collect pollen and allow them to continusouly carry and transfer this pollen to other plants. 
+Bees and butterflies are the most well known pollinators. They have specialized structures on their bodies that collect pollen and allow them to continuously carry and transfer this pollen to other plants. 
 
 #### Birds
-Perhaps somewhat surprisingly, birds are very important pollinators for wildflowers. In the United States Hummingbirds specifically are amoung the most helpful here and are especially attracted to red. When a hummingbird inserts its beak into a flower to drink the nectar, sticky pollen grains stick to it. The bird then visits another flower and transfers this pollen in the process and if both flowers are the same species pollination occurs.  
+Perhaps somewhat surprisingly, birds are very important pollinators for wildflowers. In the United States Hummingbirds specifically are among the most helpful here and are especially attracted to red. When a hummingbird inserts its beak into a flower to drink the nectar, sticky pollen grains stick to it. The bird then visits another flower and transfers this pollen in the process and if both flowers are the same species pollination occurs.  
 
 There are 2,000 bird species globally that feed on nectar, insects, and the spiders associated with nectar bearing flowers.
 
 #### Beetles
-Though often overlooked, Beetles make up the largest group of pollinators because there are so many of them. They are able to see color but choose their favorite flowers based on smell; preferring spicy or spoiled frangrances. Beetles such as ladybugs supply the additional benefit of killing pests that would likely destroy the wildflowers. A single ladybug can eat as many as 5,000 aphids in its lifetime.
+Though often overlooked, Beetles make up the largest group of pollinators because there are so many of them. They are able to see color but choose their favorite flowers based on smell; preferring spicy or spoiled fragrances. Beetles such as ladybugs supply the additional benefit of killing pests that would likely destroy the wildflowers. A single ladybug can eat as many as 5,000 aphids in its lifetime.
 
 #### Moths & Bats!
 Pollination is not just a day shift job. Moths and bats take over at night.
@@ -42,12 +42,12 @@ Pollination is not just a day shift job. Moths and bats take over at night.
 While most flower-visiting bats live in more tropical climates, it is still very cool to learn that they can be such important and unexpected pollinators.
 
 ## Saving Bugs
-Insect populations are decreasing drastically around the world. This is an issue for many reasons other than pollinatoion. Entire ecosystems that rely on bugs as a source of food can die off forever. Insects serve as the base of the food web, eaten by everything from birds to mammals to fish. Without this food source these animals will also die. 
+Insect populations are decreasing drastically around the world. This is an issue for many reasons other than pollination. Entire ecosystems that rely on bugs as a source of food can die off forever. Insects serve as the base of the food web, eaten by everything from birds to mammals to fish. Without this food source these animals will also die. 
 
 Many insects also do a great job of animal waste removal, carrying out a crucial step in the nutrient cycling process and keeping this wase from literally piling up all around us. 
 
 ## Beauty
-Wildflowers are vibrantly colored by design in order to attact as many pollinators as possible. They have the ability to cover and thrive in our native environment, creating peace and beauty while encouraging gardening and fostering pollinator education. 
+Wildflowers are vibrantly colored by design in order to attract as many pollinators as possible. They have the ability to cover and thrive in our native environment, creating peace and beauty while encouraging gardening and fostering pollinator education. 
 
 ## Common Types In The Area (Delaware) 📍
 1. Swamp Milkweed 
@@ -65,7 +65,7 @@ Wildflowers are vibrantly colored by design in order to attact as many pollinato
 
 ### Where To Get Seeds 📍
   * [Urban Farmer Delaware blend](https://www.ufseeds.com/product/delaware-wildflower-seeds/) 
-  * [American Meadows northeat blend](https://www.americanmeadows.com/northeast-pollinator-wildflower-seed-mix)
+  * [American Meadows northeast blend](https://www.americanmeadows.com/northeast-pollinator-wildflower-seed-mix)
 
 ### Growing Seeds
 
@@ -77,7 +77,7 @@ Luckily native wildflowers are naturally the easiest flowers to grow! Nearly any
 1. Select a site where rain water will not pool and will receive roughly 6 hours of sunlight each day. 
 2. Pull all weeds from the area about 2 weeks before planting. 
 3. Break up the top 2 inches of soil with a hoe and water the area well. This is allow the remaining weed seeds to germinate and can then be removed over the next couple weeks before the wildflower seeds are planted. Once the wildflowers are fully grown they will control weeds on their own. 
-4. Sprinkle the seedson the soil surface, following the recommended distance as outlined on the seed packet of the specific flower species (overcrowding can kill them!). 
+4. Sprinkle the seeds on the soil surface, following the recommended distance as outlined on the seed packet of the specific flower species (overcrowding can kill them!). 
 5. Lay a flat board on top of the new seed bed and press down to enforce contact with soil, then remove the board. 
 6. Gently mist the seed bed with water once a day.
 
@@ -86,17 +86,17 @@ Wildflowers typically germinate within 7-14 days and require sunlight to do so.
 ## Other Ways Of Helping From Your Yard
 
 ### Pollinator Houses 
-Different types of pollinators require different types of homes and pollinator houses are structures that serve as coazy homes for solitary-nesting native bees. Solitary nesting bees do not live within the protection of colonies and do not produce honey. These bees spend a majority of their time collecting pollen and are more effective pollinateing plants than honeybees. Solitary bees need hollow tubes to to live in for protection and to lay their young, so pollinator houses are a great way to ensure that these little helpers can survive and thrive. 
+Different types of pollinators require different types of homes and pollinator houses are structures that serve as coazy homes for solitary-nesting native bees. Solitary nesting bees do not live within the protection of colonies and do not produce honey. These bees spend a majority of their time collecting pollen and are more effective at pollinating plants than honeybees. Solitary bees need hollow tubes to to live in for protection and to lay their young, so pollinator houses are a great way to ensure that these little helpers can survive and thrive. 
 
 ### Reduce Chemical Usage 
-Chemical-free, organic gardening and landscaping practices are always the best option for people, pets, wildlife, and the environment. Pesticides and herbicide destoy earth worm populations and good weeds that feed pollinators and keep pests at bay, yet the average lawn in American uses several times more chemicals than farmlands. 
+Chemical-free, organic gardening and landscaping practices are always the best option for people, pets, wildlife, and the environment. Pesticides and herbicide destroy earthworm populations and good weeds that feed pollinators and keep pests at bay, yet the average lawn in American uses several times more chemicals than farmlands. 
 
-The key to chemical-free lawn care starts with the health of the soil and a shift in what we consider to be the "ideal" lawn. When grass is able to thrive unwanted weeds have a much harder time setting in. Airating in the spring and fertilizing with compost once a year can help tremendously. Also, make sure the grass seed you purchase is native to the area. 
+The key to chemical-free lawn care starts with the health of the soil and a shift in what we consider to be the "ideal" lawn. When grass is able to thrive unwanted weeds have a much harder time setting in. Aerating in the spring and fertilizing with compost once a year can help tremendously. Also, make sure the grass seed you purchase is native to the area. 
 
-If an "ideal"lawn is viewed as land where plants, wildlife, and insects can thrive and positively controbute to the environment, than chemicals are not the way to achieve this. Dandelions can be pretty too!
+If an "ideal"lawn is viewed as land where plants, wildlife, and insects can thrive and positively contribute to the environment, than chemicals are not the way to achieve this. Dandelions can be pretty too!
 
 ### Plant Milkweed
-Milkweed is a famously known host for monarch butterfly catepillars and they attract loads of other insects and birds. Some birds, like the American Goldfinch, use the fiber from this plant to create nests for their chicks. 
+Milkweed is a famously known host for monarch butterfly caterpillars and they attract loads of other insects and birds. Some birds, like the American Goldfinch, use the fiber from this plant to create nests for their chicks. 
 
 ## Local Gardens 📍
 * [Longwood Gardens](https://longwoodgardens.org/)
