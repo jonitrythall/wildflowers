@@ -36,3 +36,5 @@ All sourced from [Wikipedia.org](https://www.wikipedia.org/)
 
 ![Printed sheet with 10 wildflower benefits](https://user-images.githubusercontent.com/5723303/57584501-283f2500-74aa-11e9-8b91-157869f53dea.jpg)
 
+![Close up of project board paper art flowers](https://user-images.githubusercontent.com/5723303/57588123-d1534300-74dd-11e9-8284-560abd85e204.jpg)
+
