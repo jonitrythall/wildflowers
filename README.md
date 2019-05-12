@@ -10,8 +10,6 @@ I'd really love to see how you make this your own if you want to reach out [on T
 
 Good luck, friends! 
 
-*Please Note: Regional specific details are for Delaware, USA so please be mindful of tailoring to your area. Any regional specific details that must be edited are noted with a* 📍
-
 ## Design Details 🎨
 
 ### Typeface
@@ -29,3 +27,12 @@ Good luck, friends!
 
 ### Tri-fold Board Photos
 All sourced from [Wikipedia.org](https://www.wikipedia.org/) 
+
+*Please Note: Regional specific details are for Delaware, USA so please be mindful of tailoring to your area. Any regional specific details that must be edited are noted with a* 📍
+
+![Photo of completed project board](https://user-images.githubusercontent.com/5723303/57584491-f0d07880-74a9-11e9-825d-386bbd9eb72f.jpg)
+
+![Seed packets with custom labels](https://user-images.githubusercontent.com/5723303/57584500-26756180-74aa-11e9-90b2-131870c55076.jpg)
+
+![Printed sheet with 10 wildflower benefits](https://user-images.githubusercontent.com/5723303/57584501-283f2500-74aa-11e9-8b91-157869f53dea.jpg)
+
