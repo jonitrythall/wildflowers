@@ -26,3 +26,6 @@ Good luck, friends!
 - ![#f06ba8](https://placehold.it/15/f06ba8/000000?text=+) `#f06ba8`
 - ![#5c459c](https://placehold.it/15/5c459c/000000?text=+) `#5c459c`
 - ![#8b461f](https://placehold.it/15/8b461f/000000?text=+) `#8b461f`
+
+### Tri-fold Board Photos
+All sourced from [Wikipedia.org](https://www.wikipedia.org/) 
