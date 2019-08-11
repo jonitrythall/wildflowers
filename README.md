@@ -25,6 +25,11 @@ Good luck, friends!
 - ![#5c459c](https://placehold.it/15/5c459c/000000?text=+) `#5c459c`
 - ![#8b461f](https://placehold.it/15/8b461f/000000?text=+) `#8b461f`
 
+### Wildflower Benefits Site
+There is a little [site to go along with this project](https://codepen.io/jonitrythall/live/VoEPrY): `bit.ly/nativewildflowers`
+
+The color theme can be changed by clicking the color drop icon 💧 and it can be forked and edited [on CodePen](https://codepen.io/jonitrythall/pen/VoEPrY). 
+
 ### Tri-fold Board Photos
 All sourced from [Wikipedia.org](https://www.wikipedia.org/) 
 
